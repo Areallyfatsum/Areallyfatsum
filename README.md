@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Areallyfatsum
+- 👀 I’m interested in Electronics
+- 🌱 I’m currently learning Electrical Engineering in Melbourne
